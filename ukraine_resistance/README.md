@@ -1,0 +1,1 @@
+This project is a webpage dedicated to spreading information and propaganda about resistance in the temporarily occupied territories captured by the russians. The webpage includes various sections, each describing specific actions to help Ukrainian soldiers and slow down the advance of russian troops.

@@ -1,1 +1,1 @@
-# StopWar_Ukraine
+In this repository, you will find some of the websites I created at the beginning of 2022, when the war in Ukraine began. These websites were actively used in social media propaganda campaigns aimed at reaching russian citizens and solders, with the goal of stopping this bloody war.

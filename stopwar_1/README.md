@@ -1,0 +1,1 @@
+This project is a website dedicated to an informational campaign against the war in Ukraine. The goal of the website is to provide users in russia with truthful information about the events in Ukraine and urge them to take action by participating in protests against the war to express their opposition and stop the violence.

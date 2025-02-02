@@ -1,0 +1,1 @@
+This website was created for the StopWar group, which was engaged in agitation through social media aimed at the russian people and russian soldiers. The essence of this website is to offer russian military personnel a peaceful way out of the conflict by surrendering their weapons and returning home safely, with amnesty and financial rewards.
